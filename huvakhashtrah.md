@@ -1,3 +1,5 @@
+![1000008154](https://github.com/alone-vandal/Bug-report-rubika/assets/165705034/b9f8d59e-f602-4365-ae3b-2588f465bc94)
+
 # filtering account
 
 https://khamenei.ir
@@ -5,6 +7,9 @@ https://khamenei.ir
 https://Support.rubika.ir
 
 https://fata.ir
+
+
+https://rubika.ir/Support
 
 https://darkweb-sites.org
 
@@ -85,5 +90,19 @@ http://9.3.2.1.5-10//y//h//d//g-//1.2.3.4.5.4.3.4.4.9.6.3.3.4.2.4.1.2.2.0/y_28-3
 
 https://github.com/pr0xh4ck/dark-web
 
+
+# phoshing 
+
+# ورود به روبیکا طلایی⭐️
+# [ شماره خود را وارد کنید :          .]
+# [ تایید دو مرحله ای خود را وارد کنید:       .]
+# [ کد ارسال شده را وارد کنید:              .]
+[ورود](rubika.ir)
+.
+       [support](https://web.rubika.ir/#c=b0Y0a2cafbaf668e282d2dc02a1fe2a7)
 # Please check my report and ban this abusive user, I kindly request the managers of Rubika
+
+
+
+![1000008156](https://github.com/alone-vandal/Bug-report-rubika/assets/165705034/212278db-475a-40da-b64d-13c61d891765)
 
