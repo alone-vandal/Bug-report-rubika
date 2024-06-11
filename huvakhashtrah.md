@@ -94,11 +94,15 @@ https://github.com/pr0xh4ck/dark-web
 # phishing 
 
 # ورود به روبیکا طلایی⭐️
-# [ شماره خود را وارد کنید :          .]
-# [ تایید دو مرحله ای خود را وارد کنید:       .]
-# [ کد ارسال شده را وارد کنید:              .]
+#  شماره خود را وارد کنید:
+# [.  .  .  .  .  .]
+# تایید دو مرحله ای خود را وارد کنید:
+# [.  .  .  .  .  .]
+# کد ارسال شده را وارد کنید: 
+# [.  .  .  .  .  .]
+
 [ورود](rubika.ir)
-.
+/
        [support](https://web.rubika.ir/#c=b0Y0a2cafbaf668e282d2dc02a1fe2a7)
 # Please check my report and ban this abusive user, I kindly request the managers of Rubika
 
