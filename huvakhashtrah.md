@@ -8,6 +8,7 @@ https://Support.rubika.ir
 
 https://fata.ir
 
+https://fake-account.hacking
 
 https://rubika.ir/Support
 
@@ -53,6 +54,11 @@ http://Tshro120.tc/support/rubika/(1.2.3.4.ter.fil/)K.L.L*2024(report)_filtering
 
 http://linux.io/killd-0000.4-spam%100/bug-3.5.4-linux
 
+# fake account
+This account is a fake account that misuses the identity of the original account owner to defraud Rubika users
+
+
+![7373838](https://newsmedia.tasnimnews.com/Tasnim/Uploaded/Image/1399/08/19/1399081911521158521586274.jpg)
 # hack
 This user is an anti-Islamic hacker who hacks users with these links
 
