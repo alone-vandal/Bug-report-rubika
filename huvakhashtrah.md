@@ -1,6 +1,6 @@
 ![1000008154](https://github.com/alone-vandal/Bug-report-rubika/assets/165705034/b9f8d59e-f602-4365-ae3b-2588f465bc94)
 
-# filtering account filtering grup filtering channel
+# filtering account filtering group filtering channel
 
 https://khamenei.ir
 
